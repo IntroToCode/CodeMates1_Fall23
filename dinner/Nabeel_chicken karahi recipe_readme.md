@@ -1,6 +1,7 @@
 # Steak
 
-## Servings: 4
+## Servings: 
+4
 
 ## Time to prepare: 
 
