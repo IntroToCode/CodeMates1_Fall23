@@ -2,7 +2,7 @@
 
 ## Servings: 4
 
-## Time to prepare: 
+## Time to prepare: 25 mins
 
 ## Ingredients:
 2 lbs of Steak
