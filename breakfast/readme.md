@@ -28,6 +28,7 @@
 6. Serve.
 
 ### Notes: Ensure that ingredients are fresh for the best results
+Use paprika, as it will make it better
 
 
 
