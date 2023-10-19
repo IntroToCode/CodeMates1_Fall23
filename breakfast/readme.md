@@ -28,7 +28,7 @@
 6. Serve.
 
 ### Notes: Ensure that ingredients are fresh for the best results
-add paprika for taste
+add paprika for taste!
 
 
 ### Codemates #
