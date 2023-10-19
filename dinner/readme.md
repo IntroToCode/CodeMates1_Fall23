@@ -5,16 +5,17 @@
 ## Time to prepare: 25 mins
 
 ## Ingredients:
-2 lbs of Steak
-1/2 Tbsp vegetable oil
-1 1/2 tsp
-1 tsp black pepper, freshly ground
-2 Tbsp unsalted butter
-2 cloves garlic, peeled and quartered
-1 sprig fresh rosemary
+- 2 lbs of Steak
+- 1/2 Tbsp vegetable oil
+- 1 1/2 tsp
+- 1 tsp black pepper, freshly ground
+- 2 Tbsp unsalted butter
+- 2 cloves garlic, peeled and quartered
+- 1 sprig fresh rosemary
 
 ## Equipment needed:
-Cast iron skillet
+- Cast iron skillet
+- Stove
 
 
 ## Steps for preparation:
